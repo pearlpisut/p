@@ -3,5 +3,5 @@ description เล็กน้อย
 ## Maths
 
 courses | Institutuion | Duration | Effort
-------------------------------------------
+------- | ------------ |--------- | ------
 abc | abbbb | derg | rgrgrgr
