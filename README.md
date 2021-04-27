@@ -1,1 +1,11 @@
-[rrrr.docx](https://github.com/pearlpisut/p/files/6383071/rrrr.docx)
+The curriculum for aa
+
+Maths 
+
+efeffefefefef	efefe	vdvfb	Mv d
+dfd			
+wdf			
+dfcd			
+vdfdv			
+
+
